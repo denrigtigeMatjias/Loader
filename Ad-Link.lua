@@ -1,1 +1,1 @@
-https://ads.luarmor.net/get_key?for=Mining_GO_Key_6_Hours-VVtJHOGzjmsF
+https://ads.luarmor.net/get_key?for=Matjias_Scripts_6_HOUR_KEY-VVtJHOGzjmsF
